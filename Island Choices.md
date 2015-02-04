@@ -12,3 +12,4 @@
   - 510 acres
   - 1.5 miles away from St. Thomas
   - "white sandy beaches, crystal-clear turquoise waters, stunning cliffs, palm forests and spectacular 360-degree views"
+  - $29,500,000
